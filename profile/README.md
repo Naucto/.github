@@ -1,4 +1,4 @@
-## Hi there 👋 Welcome to Nautowo
+## Hi there 👋 Welcome to Nauctowo
 
 <!--
 
